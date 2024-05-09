@@ -1,2 +1,2 @@
 # reclamation
-![reg](https://user-images.githubusercontent.com/89823371/216227529-e77d1c69-3b91-4f1f-839e-e17ba173a01c.png)
+![image](https://github.com/Atropa-Solanaceae/reclamation/assets/89823371/4ba059b9-a7f3-41ff-b952-4e781653e24b)
